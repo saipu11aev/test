@@ -2,6 +2,4 @@
 
 study in Avtoroad
 
-13.05.2git 
-
-uyhygug
+13.05.265656565656
